@@ -13,7 +13,7 @@ Below are some of the key research projects I have worked on:
 
 
 
-I am continuously updating this portfolio with new research findings, projects, and collaborations.
+I am continuously updating this portfolio with new research findings, projects, and collaborations. For more on my Industrial Design portfolio please visit: https://www.coroflot.com/halehbarmaki/stream
 
 ---
 
